@@ -1,5 +1,1 @@
-```
-Hello, world!
-```
-
-www.instagram.com/anaa_chun
+``` # Esta cuenta solo lo uso para seguir a la gente ```
